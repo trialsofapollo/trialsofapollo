@@ -1,1 +1,1 @@
-<img width="2047" height="638" alt="image" src="https://github.com/user-attachments/assets/f384e96a-8ddc-4fa9-95b2-f9c21836bca4" />
+<img width="500" height="500" alt="candy deco large" src="https://github.com/user-attachments/assets/d246d9a0-bc2c-427d-a09d-6b8fe7a4da9d" />
