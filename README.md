@@ -7,7 +7,7 @@
 
                        <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/8259ba31-64e4-4fbf-92cc-abadc4d8ae6e" /> c * h always enc  usually w2i
 
+                           [rentry](https://rentry.co/followme)  [ata](https://cavaliers.atabook.org/)
 
-
-              ![MAD WORLD](https://github.com/user-attachments/assets/bfa84d76-3c47-469e-afeb-fc75c0b2473a)
+![MAD WORLD](https://github.com/user-attachments/assets/bfa84d76-3c47-469e-afeb-fc75c0b2473a)
 
