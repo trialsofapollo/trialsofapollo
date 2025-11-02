@@ -1,3 +1,1 @@
-<img width="1000" height="1000" alt="Untitled83_20250929210918" src="https://github.com/user-attachments/assets/92c49042-8700-4d50-a166-1d7a8bc354d0" />
-LUCKY CANON ❤️‍🩹👀😢
-art bai @poddles on discord
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/a554694f-62db-43d0-b60b-8fe3f36d229e" />
