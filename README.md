@@ -11,3 +11,30 @@
 
               ![MAD WORLD](https://github.com/user-attachments/assets/bfa84d76-3c47-469e-afeb-fc75c0b2473a)
 
+          <img width="580" height="30" alt="image" src="https://github.com/user-attachments/assets/a9263076-3511-468f-85d5-bd84560d1935" />
+
+𓎟𓎟 hi everypony! im chomp, thx for checking out my git :) ill try to include some info abt me thats useful
+
+**where do i usually sit ?** ╱
+
+𓎟𓎟 i usually sit at the comics area or the greek mytho / pjo area! 
+
+<img width="474" height="355" alt="image" src="https://github.com/user-attachments/assets/43c4cb59-2e1f-4b94-b4b8-88afb9cd3000" />
+
+**boundaries ?** ╱
+
+𓎟𓎟 i honestly dgaf if u cover me or c*h me! ships can int if ur not weird abt it, besides if its a skin of my f/o :P (perachel is an exception) boops are also okey
+
+𓎟𓎟 also, pls iwc if ur like a huge fan of a bucky ship. (ccxcc) oc x canon is chill, im just uncomfy with ccxcc ships with him T_T and doubles obvi Heh
+
+**skin inspo ?** ╱
+
+𓎟𓎟 inspo is fine! im not really like huge on that, just dont colorpick me 1:1 and i wont have an issue with it ^u^
+
+**extra drabbles** ╱
+
+𓎟𓎟 SELF / YUMESHIPPERS PLSSSSS TALK TO MEEEEEE I HAVE NO YUMEFRIENDS WAHHH!!!!!
+
+𓎟𓎟 im not online like. frequently due to my busy schedule with band + homework + my job but i do try to make time for my online friends
+
+dont be afriad to chat with me!! im super nice and i make friends very easily if we share an interest :3
